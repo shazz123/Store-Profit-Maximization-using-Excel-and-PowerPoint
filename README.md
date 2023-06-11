@@ -1,3 +1,4 @@
+![store maxi](https://github.com/shazz123/Store-Profit-Maximization-using-Excel-and-PowerPoint/assets/31789245/a0fe52f8-790e-4bff-bcf0-eb1a4071bc7d)
 # Store-Profit-Maximization-using-Excel-and-PowerPoint
 
 
